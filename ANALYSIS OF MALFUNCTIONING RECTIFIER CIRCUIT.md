@@ -6,7 +6,13 @@
 
 ## ATTACH THE CORRECT CIRCUIT
 
+![WhatsApp Image 2025-11-23 at 11 39 25_21f854c3](https://github.com/user-attachments/assets/a4486756-5827-4793-85d8-3ca7e6ba96cc)
+
+
 ## GRAPHS
+
+![WhatsApp Image 2025-11-23 at 11 39 38_9dd4c79f](https://github.com/user-attachments/assets/fbe225ec-201a-43e2-953e-bad70ef2153a)
+
 
 
 <img width="936" height="122" alt="image" src="https://github.com/user-attachments/assets/2d2e2399-6a9f-49ec-b40c-3c2982d4b82c" />
